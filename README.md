@@ -1,0 +1,1 @@
+# hdd-regenerator-2024-serial-key
